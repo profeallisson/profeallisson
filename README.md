@@ -1,4 +1,9 @@
 ### Hi there 👋
+Meu nome é **Allisson Matheus**
+Gosto de ler livros de **História**, principais assuntos: 
+- Idade **Média**
+- Idade **Antiga**
+
 
 <!--
 **profeallisson/profeallisson** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
