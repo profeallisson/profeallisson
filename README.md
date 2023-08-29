@@ -4,8 +4,10 @@ Meu nome é **Allisson Matheus**
 Meu email é: 📫 andrade.allisson@escola.pr.gov.br
 
 Gosto de ler livros de **História**, principais assuntos: 
-- Idade **Média** ![](https://media.tenor.com/Wp_HEKKmHmAAAAAC/war.gif)
-- Idade **Antiga** ![](https://media.tenor.com/7ueQXokwiQQAAAAd/apocalyptica.gif)
+- Idade **Média**
+-  ![](https://media.tenor.com/Wp_HEKKmHmAAAAAC/war.gif)
+- Idade **Antiga**
+-  ![](https://media.tenor.com/7ueQXokwiQQAAAAd/apocalyptica.gif)
 
   Jesus é o caminho, a verdade e a vida.
 
