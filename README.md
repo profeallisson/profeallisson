@@ -11,12 +11,15 @@ Gosto de ler livros de **História**, principais assuntos:
 
    ![](https://media.tenor.com/7ueQXokwiQQAAAAd/apocalyptica.gif)
 
+[Alura](https://www.alura.com.br)
+  
+
   Jesus é o caminho, a verdade e a vida.
 
   
  ![](https://media.tenor.com/WgY0WLQ4cZMAAAAC/jeus-jesus.gif)
 
-  ![](https://media.tenor.com/jDPIXka-T_wAAAAC/naruto-to-certo.gif)
+  
 
   
 
