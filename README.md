@@ -11,8 +11,9 @@ Gosto de ler livros de **História**, principais assuntos:
 
    ![](https://media.tenor.com/7ueQXokwiQQAAAAd/apocalyptica.gif)
 
-![Instagra: @allissonmatheusz](https://www.instagram.com/allissonmatheusz)
+![Instagram: @allissonmatheusz](https://www.instagram.com/allissonmatheusz)
   
+[![](https://img.shields.io/badge/Instagram-E4405F?style=for-the-badge&logo=instagram&logoColor=white)](https://www.instagram.com/aluraonline/)
 
   Jesus é o caminho, a verdade e a vida.
 
