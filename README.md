@@ -13,7 +13,7 @@ Gosto de ler livros de **História**, principais assuntos:
 
    ![](https://media.tenor.com/7ueQXokwiQQAAAAd/apocalyptica.gif)
   
-
+Por fim:
   Jesus é o caminho, a verdade e a vida.
 
   
